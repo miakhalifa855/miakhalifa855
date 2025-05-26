@@ -5,8 +5,7 @@
 - 📫 ALCEU RICARD0 ...
 - 😄 ELE/DELE...
 - ⚡ ![KochamCięGIF](https://github.com/user-attachments/assets/ff0e88b8-55f0-4490-9a74-752f36fdeb03)
-![LebronJamesLebronJamesChalkGIF](https://github.com/user-attachments/assets/62bdf15c-80da-46db-8fc7-25936fc99e14)
- ...
+
 
 <!---
 miakhalifa855/miakhalifa855 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

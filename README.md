@@ -4,8 +4,8 @@
 - 💞 NASCIDO EM 2009 ...
 - 📫 ALCEU RICARD0 ...
 - 😄 ELE/DELE...
-- 
-![Uploading KendrickcreepysmileKendrickLamarGIF.gif…]()
+- ![Uploading KendrickKendrickLamarGIF.gif…]()
+
 
 <!---
 miakhalifa855/miakhalifa855 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
